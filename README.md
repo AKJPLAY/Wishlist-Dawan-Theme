@@ -1,3 +1,1 @@
-Add this Code To Wishlist Icon on Header.
-
-
+Add These file to your Shopify theme..
